@@ -1,3 +1,7 @@
+---
+title: Privacy Policy
+---
+
 # Expensley Privacy Policy
 
 **Effective Date:** January 18, 2026  
