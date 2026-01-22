@@ -1,3 +1,7 @@
+---
+layout: null
+---
+
 # Expensley – Terms of Service (Terms of Use)
 
 **Effective Date:** January 25, 2026  
