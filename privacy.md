@@ -188,8 +188,7 @@ We may update this privacy policy from time to time. We will notify you of signi
 
 If you have questions or concerns about this privacy policy or our data practices, please contact us at:
 
-**Email:** [Your Support Email]  
-**Website:** [Your Website URL]
+**Email:** mhd.shibly@hotmail.com
 
 ---
 
